@@ -1,2 +1,2 @@
 # Projekt-Manager
-# Projekt pre Furmanovu nigga
+# Projekt pre Furmanovu BANG
